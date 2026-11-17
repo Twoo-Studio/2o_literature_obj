@@ -11,7 +11,7 @@
   * Sao lại phải đặt nhà kho là nơi để các thiết bị và vũ khí chứ! - Galley trả lời.
   
   Chỉ huy nhìn cậu và nói:
-  * Hay là cậu muốn ngủ trong nhà kho? Hoặc tắm trong nhà kho à? Thằng ngốc!
+  * Hay là cậu muốn ngủ trong nhà kho? Hoặc tắm trong nhà kho à? Thằng ngốc!  
   
   Hai người cứ lời qua tiếng lại. Còn Mike, người phải đi đóng cổng. Sau khi đóng cổng xong, cậu nghe thấy một âm thanh kì lạ ngoài kia. Thì ra chỉ là con sói. Cậu thở phào nhẹ nhõm và quay đi mà không hề hay biết xác hai người gác cổng đã bị kéo đi mất trong khi cả buổi chiều không ai đụng đến.
   Lúc này Mike nhớ lại lời ông lão nói lúc chiều. Cậu quay lại nhà thờ tìm ông lão.

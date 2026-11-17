@@ -9,7 +9,7 @@
    * Tôi biết cậu nổi tiếng là đa nghi, nhưng mà chúng ta đã lạc ở đây cả tuần rồi! Nếu cậu không đi thì tôi cũng không níu kéo.
    
   Mọi người lần lượt đi theo chỉ huy, còn Mike cũng đành miễn cưỡng đi theo bọn họ. Sau một chặng đường, chỉ huy hỏi người lính trinh sát:
-  * Cậu có chắc là đang đi đúng đường không vậy?
+  * Cậu có chắc là đang đi đúng đường không vậy?  
   * Vâng, tôi chắc chắn! - Người trinh sát trả lời.
   
   Đến chiều mọi người mới đến nơi. Một người thắc mắc:
