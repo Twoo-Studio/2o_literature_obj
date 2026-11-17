@@ -2,7 +2,7 @@
 ### Chương 1: Buổi chiều màu đỏ.
  Một tiểu đội lính đánh thuê đang lang thang trong rừng. Đi trước đoàn là chỉ huy của nhóm. Một người vô cùng tàn bạo nhưng có phần trách nhiệm. Trong lúc đang lo lắng về nơi ở tối nay thì trinh sát quay về báo cáo.
    * Báo cáo chỉ huy. Tôi vừa phát hiện khu dân cư phía trước khoảng 800m.
-   * Vậy cậu mau dẫn mọi người đến đó, chúng ta sẽ "ở nhờ" họ. - Người chỉ huy trả lời, vừa nói vừa nở một nụ cười đáng sợ.
+   * Vậy cậu mau dẫn mọi người đến đó, chúng ta sẽ "ở nhờ" họ. - Người chỉ huy trả lời, vừa nói vừa nở một nụ cười đáng sợ. 
   
   Mike, một người tuy không giỏi chiến đấu. Nhưng lại vô cùng nhạy bén. Cảm thấy có gì đó không ổn. Cậu liền nói với chỉ huy:
    * Thưa chỉ huy, tôi cảm thấy phía trước có gì đó không ổn. Mọi thứ vô cùng u ám, ai mà lại định cư ở nơi đây chứ?

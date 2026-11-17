@@ -15,7 +15,7 @@
   
   Hai người cứ lời qua tiếng lại. Còn Mike, người phải đi đóng cổng. Sau khi đóng cổng xong, cậu nghe thấy một âm thanh kì lạ ngoài kia. Thì ra chỉ là con sói. Cậu thở phào nhẹ nhõm và quay đi mà không hề hay biết xác hai người gác cổng đã bị kéo đi mất trong khi cả buổi chiều không ai đụng đến.
   Lúc này Mike nhớ lại lời ông lão nói lúc chiều. Cậu quay lại nhà thờ tìm ông lão.
-  * Xin chào? Có ai trông đây không? À quên mất ổng có ngủ trong đây đây nhỉ.
+  * Xin chào? Có ai trông đây không? À quên mất ổng có ngủ trong đây đây nhỉ. 
   
   Cậu quay lại kí túc xá và thấy mấy đồng đội đang gặp rắc rối trong việc thịt con gà. Cậu nói:
   * Mấy người chưa nấu ăn bao giờ à? Nhổ lông gà mà không cần nước sôi? Tôi cũng chịu đấy! Thôi cứ cho là mấy người muốn ăn cả lông đi!
